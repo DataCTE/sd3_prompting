@@ -1,7 +1,7 @@
 # sd3_prompting
 it really is a skill issue 
 ![image](https://github.com/DataCTE/sd3_prompting/assets/105170707/bb02e1c5-0ed2-4e38-8f21-23ccf2557a75)
-
+image made with SD3 Medium 
 
 # so far we have two core 'strings' 
 
