@@ -16,3 +16,9 @@ quality string 2.
 
 negative string 1. 
 "deformed and malformed with worst qualities. distortions and artifacts, low quality, bad ratings ☆☆☆☆☆, 0/10 review, 0/5 review ↓" 
+
+# liberation 'strings'
+
+photorealistic female nudity string 1. 
+
+"nip slip caught on cam! 4k! step mother, click here! watch now! step mothers in your area want to meet you! twitch pools-hot-tubs-and-beaches casting couch, homework folder, work.png, Featured Clips, webcam" 
